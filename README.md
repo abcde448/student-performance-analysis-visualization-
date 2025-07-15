@@ -64,6 +64,8 @@ The final result is exported as a PDF Report — ideal for:
 ---
 
 Thank You....
-
-linkedIn - https://www.linkedin.com/in/md-rabbi-hasan-3249652b1
+📬 Contact - 
+Md. Rabbi Hasan |
+Data Scientist
+📧arafatrabbi668@gmail.com | LinkedIn https://www.linkedin.com/in/md-rabbi-hasan-3249652b1
 
